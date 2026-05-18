@@ -1,4 +1,4 @@
-#  
+#  Sans bannissement brainrot evolution scripts est le meilleur brainrot evolution scripts avec téléportation et mise à niveau automatique. Sécurisé, fiable et optimisé pour des
 
 
 
